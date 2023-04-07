@@ -3,6 +3,7 @@
 - I’m currently looking for job
 - If you have an offer, please let me know
 - You might reach me through:
+
 Mail: chint2184@gmail.com
 Telegram: t.me/@odium_chent
 
